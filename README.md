@@ -1,1 +1,1 @@
-# Independent Graduate Study (IGS) 
+# Independent Graduate Study (ISG) 
